@@ -11,3 +11,5 @@
 - Animation
 
 
+https://github.com/Polyandiy/CryptoApp_PetProject/assets/109841383/76520388-f0f2-4799-a36b-87f1ea801e28
+
